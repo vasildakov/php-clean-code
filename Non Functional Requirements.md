@@ -15,14 +15,30 @@ of displaying the record count within an acceptably short interval of the number
 ## Accessibility
 
 ## Documentation
+Documentation is any communicable material that is used to describe, explain or instruct regarding some attributes of 
+an object, system or procedure, such as its parts, assembly, installation, maintenance, and use.
 
 ## Interoperability
+
+## Extensibility
 
 ## Maintainability
 
 ## Performance 
 
 ## Quality
+(A) Software's functional quality reflects how well it complies with or conforms to a given design, based on functional 
+requirements or specifications.
+
+(B) Software structural quality refers to how it meets non-functional requirements that support the delivery of the 
+functional requirements, such as robustness or maintainability. It has a lot more to do with the degree to which the 
+software works as needed.
+
+Many aspects of structural quality can be evaluated only statically through the analysis of the software inner 
+structure, its source code (see Software metrics), at the unit level, and at the system level (sometimes referred 
+to as end-to-end testing), which is in effect how its architecture adheres to sound principles of software 
+architecture outlined in a paper on the topic by Object Management Group (OMG).
+
 
 ## Readability
 
