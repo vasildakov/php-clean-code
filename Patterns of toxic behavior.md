@@ -1,0 +1,43 @@
+
+
+## 30 examples of toxic traits
+If you saw someone throwing a chair through a window, you might think, "They have the toxic trait of anger." But not all toxic personality traits manifest so obviously.
+
+Many people's toxic traits come out in subtle ways. You may not recognize them straight away when you encounter toxic behaviors in a relationship. Let's discuss 30 toxic traits and behaviors and their warning signs.
+
+1. Negativity: a person with negativity may see the world as cold, cruel, and evil. They may frequently complain, ruin the fun, or dampen people's spirits with defeatist comments and actions.
+2. Judgmentalness: a person who is judgmental may judge situations, people, or events without experience. For example, a friend may tell you that a concert will be boring or lame before you even arrive.
+3. Dishonesty: a person who displays dishonesty may lie or mislead others. The act of lying is a choice. But dishonestly is the tendency to lie. Many people use dishonesty as a coping mechanism. 
+4. Rigidness: a person who is rigid may be stubborn, inflexible, or unable to adapt when things don't go as planned. For example, an employee may struggle to adapt when a new boss joins your team and changes the team dynamic. 
+5. Rudeness: a person who displays rude behavior may speak or act without manners that most people would define as culturally appropriate. For example, someone may talk to a server without saying "please" or "thank you."
+6. A lack of empathy for others: a person who lacks empathy for others may struggle to understand other people's feelings and thoughts. For example, a leader that lacks empathy may not notice that one of their employees is struggling to complete work because they are tired.
+7. Cynicism: a person who displays cynicism may think that interests and goals motivate people to the detriment of others. For example, a cynical person may assume that a polite server was only friendly for a good tip. 
+8. Recklessness: a person who is reckless may not consider the danger their actions place upon themselves or others. For example, someone with recklessness may encourage you to undertake a dangerous activity. 
+9. Pickiness: a person who is picky may struggle in situations that are new, outside their comfort zone, or don't match their standards. For example, a picky eater may refuse to eat a meal you cooked for them because they haven't tried a key ingredient before.
+10. Argumentativeness: a person who is argumentative may get joy or pleasure from starting arguments. For example, a person may look for flaws in a family member's idea and attempt to rile them into a fight. Not all conflict is bad, but being argumentative for the sake of arguing can be detrimental. 
+11. Quick to anger: a person who's quick to anger may become upset due to a trigger that would offend most people. For example, a colleague may get angry quickly and struggle to calm themselves down. 
+12. Bossiness: a person who is bossy may take charge of a situation, demand control, or assert dominance over others. For example, a bossy colleague may micromanage your part of a project, despite not holding authority over you. A bossy colleague may also challenge your manager's leadership or undermine them. 
+13. Self-centeredness: a person who displays self-centeredness may focus on their wants over another person's needs. For example, a self-centered friend may refuse to comfort another friend because they'd rather do something else.
+14. Arrogance: a person who displays arrogance may believe they are more intelligent and more important than others. As such, they may treat others rudely or condescendingly. For example, an arrogant and selfish employee may refuse to listen to anyone else's ideas and are not willing to collaborate. 
+15. Greediness: a person who is greedy may take more than they need at the detriment of others. For example, a friend with greediness may eat a slice of cake you saved for a friend who missed the cake cutting. 
+16. Stinginess: a person who is stingy may refuse to share their time, possessions, or money. They do this even when someone else deserves them. For example, a stingy family member may refuse to pay their part of a restaurant bill. 
+17. Sneakiness: a person who is sneaky may conceal their actions and words from others for personal benefit. For example, a colleague may sabotage your work by neglecting to pass on a crucial instruction from your manager.
+18. Thoughtlessness: a person who is thoughtless may not consider how their actions or words may impact others. For example, a family member may tell your extended family a secret you shared with them in confidence. 
+19. Disruptiveness: a person who is disruptive may speak over or interrupt others for personal gain. For example, an employee may play music out loud in the office. 
+20. Conflict avoidance: a person who struggles with conflict avoidance may have a hard time talking to others because they’re afraid of upsetting people. For example, a conflict-avoidant friend may allow another friend to insult them out of fear of an argument. 
+21. Impulsiveness: a person who is impulsive may make rash decisions based on emotion. For example, an impulsive friend may spend too much money because they lack emotional regulation skills. 
+22. Laziness: a person who is lazy may struggle to finish tasks because they lack inspiration, motivation, and drive. For example, an employee may avoid completing their tasks because they don't want to.
+23. Apathetic: a person with apathy may struggle to care about things, goals, or people. For example, an apathetic manager may struggle to work on their relationship with you because they aren't invested. 
+24. A lack of self-awareness: a person who lacks self-awareness may struggle to reflect on their thoughts, actions, and words. For example, a toxic friend who isn't self-aware may not understand why they haven't reached a goal, despite sabotaging their own efforts. 
+25. Absolutism: a person with absolutism may view situations, people, or the world through a binary like "good or bad." For example, an absolutist friend may see another friend as bad because they upset them, despite the friend apologizing. 
+26. Manipulation: manipulation involves using tactics to control or influence others to serve one's own interests. Manipulative individuals often employ tactics such as deception, guilt-tripping, gaslighting, or playing mind games. They exploit vulnerabilities and emotions of others to maintain control over them. This toxic trait erodes trust, creates power imbalances, and undermines the autonomy and well-being of the other person in the relationship.
+27. Selfishness: selfishness refers to the excessive focus on one's own needs, desires, and interests while disregarding or neglecting the needs of others. Selfish individuals prioritize their own well-being without considering the impact of their actions on others. This can lead to a lack of empathy, unwillingness to compromise, and an overall imbalance in the relationship. It hinders the development of a mutually beneficial and supportive partnership. 
+28. Perfectionism: perfectionism is an obsession with flawlessness and setting unrealistically high standards for oneself and others. Perfectionists often struggle with self-criticism and have a strong fear of failure. They impose these unrealistic expectations on themselves and those around them, leading to constant dissatisfaction, criticism, and a negative atmosphere. The pressure to meet impossible standards can strain relationships, as it becomes difficult to feel accepted or valued for who you are. 
+29. Hostility: hostility involves displaying consistent anger, aggression, or resentment towards others. Hostile individuals tend to be easily angered, quick to argue or insult others, and have difficulty managing their emotions. This toxic trait creates a tense and hostile environment that undermines open communication, emotional safety, and overall relationship satisfaction. It can lead to a cycle of conflict, hurtful behavior, and damaged trust.
+30. Aggression: aggression refers to a tendency to use force, intimidation, or hostility to assert dominance or control over others. Aggressive behavior can manifest physically, verbally, or emotionally. It involves lashing out, threatening, or causing harm to others. Aggression creates fear, harm, and a sense of danger within a relationship. It damages trust, safety, and emotional well-being, making it nearly impossible to foster a healthy and nurturing connection.
+
+
+
+
+## Links
+- https://www.betterup.com/blog/toxic-traits
